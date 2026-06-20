@@ -1,6 +1,3 @@
-
----
-
 # 🌐 Connect with Me
 
 <a href="https://www.linkedin.com/in/karthik-chukka-8460b22b7/?isSelfProfile=true">
